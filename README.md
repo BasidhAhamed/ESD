@@ -8,3 +8,5 @@ chicken fry
 beans
 pizza
 thank you:)
+thats all
+will see in next recipe
